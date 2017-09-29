@@ -1,2 +1,0 @@
-# nikhilaggarwal.github.io
-resume
